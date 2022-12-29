@@ -1,17 +1,11 @@
 # WISH YOU GOOD LUCK
 Currently working on stuffs about Kong and JAVA ✊
 
-Not good at algorithm but good at copying 🙂
-
-Google-Oriented Programming 🔍
+Not good at algorithm but good at ...
 
 Experienced CRUD Engineering 👍
 
 Useless Wheel Builder 😅
-
-May be never have relationship with big names 😀
-
-MY LIFE GOAL: BE ALIVE
 
 <!--
 **ungle/ungle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
