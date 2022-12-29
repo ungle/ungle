@@ -1,9 +1,14 @@
 # WISH YOU GOOD LUCK
 Currently working on stuffs about Kong and JAVA ✊
+
 Not good at algorithm but good at copying 🙂
+
 Google-Oriented Programming 🔍
+
 Experienced CRUD Engineering 👍
+
 Useless Wheel Builder 😅
+
 May be never have relationship with big names 😀
 
 MY LIFE GOAL: BE ALIVE
